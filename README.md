@@ -1,1 +1,1 @@
-# pertemuan.5
+# pertemuan.5 dan 6
